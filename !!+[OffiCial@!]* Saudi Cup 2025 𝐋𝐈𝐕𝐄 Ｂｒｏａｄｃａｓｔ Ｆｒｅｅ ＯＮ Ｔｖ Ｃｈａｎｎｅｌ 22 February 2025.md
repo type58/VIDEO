@@ -1,6 +1,10 @@
 # !!+[OffiCial@!]* Saudi Cup 2025 𝐋𝐈𝐕𝐄 Ｂｒｏａｄｃａｓｔ Ｆｒｅｅ ＯＮ Ｔｖ Ｃｈａｎｎｅｌ 22 February 2025.md
 Top thoroughbreds and jockeys from around the globe will be seen in action this weekend as the Saudi Cup 2025 gets underway in Riyadh, Saudi Arabia. Established in 2020, it is regarded as the world's richest horse race.
 
+**[🔴 GO LIVE==►► CLICK HERE TO WATCH LIVE](https://with-word.blogspot.com/2025/02/saudi-cup-2025.html)**
+
+**[🔴 STREAMING==►► CLICK HERE TO WATCH LIVE](https://with-word.blogspot.com/2025/02/saudi-cup-2025.html)**
+
 The sixth edition of the event will take place on Friday and Saturday at the King Abdulaziz Racetrack. Last year saw American horse Senor Buscador owned by Sharaf Al Hariri win the race and earn a whopping $10 million as prize money.
 
 Hong Kong superstar Romantic Warrior is one of the front-runners in a loaded field for the 2025 event.
